@@ -1,0 +1,1 @@
+# absynt.sk-ebook-prices
